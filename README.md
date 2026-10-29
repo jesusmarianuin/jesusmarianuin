@@ -22,9 +22,11 @@ Así que reorganicé el rumbo. En vez de intentar crear comunidades desde cero, 
 - [Master Web3MBA — Bit2Me (2025)](https://app.web3mba.io/certificates/p2wrencnyx)
 - Cursos de blockchain, bitcoin, Java y R — OpenWebinars / Bit2Me
 
-## 📫 Contacto
+## 📫 Contacto y redes
 
 - [mypublicinbox](https://www.mypublicinbox.com/jesusmnuin)
 - [LinkedIn](https://www.linkedin.com/in/jes%C3%BAs-mar%C3%ADa-nu%C3%ADn-z%C3%BA%C3%B1iga-9922a983/)
+- [jesusmn-123 - Youtube](https://www.youtube.com/@jesusmn-123)
+- [@jesusmn - substack](https://substack.com/@jesusmn)
 
 ---
